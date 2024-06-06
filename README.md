@@ -10,7 +10,7 @@
 
 - 📫 How to reach me **chaulagainaadarsha7@gmail.com**
 
-- 📄 Know about my experiences [adarshachaulagain.com.np](adarshachaulagain.com.np)
+- 📄 Know about my experiences https://adarshachaulagain.com.np/
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
